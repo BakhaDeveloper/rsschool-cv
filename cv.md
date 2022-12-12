@@ -8,6 +8,8 @@
 >A curious Special Data Analyst at Impall Trading
 
 ## Work Experience
+### National Bank of Uzbekistan
+
 ### Impall Trading
 > _Tashkent, Uzbekistan_
 
